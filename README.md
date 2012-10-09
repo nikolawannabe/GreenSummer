@@ -1,3 +1,4 @@
+<img src="http://farm1.staticflickr.com/93/245885083_46e169829d.jpg" />
 Green Summer
 ===========
 
